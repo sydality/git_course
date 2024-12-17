@@ -1,0 +1,6 @@
+# git_course
+
+
+JGUGUGGFUGG
+HBUJGVUHIV
+HGIFGVUJIJ
